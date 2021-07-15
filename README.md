@@ -1,3 +1,3 @@
-# Electronic Engineer :electric_plug: :battery:
+# Electronic Engineer :electric_plug: :battery: 
 
-![](https://i.imgur.com/Pkp5TdF.png)
+![](https://i.imgur.com/749HW0a.png)
